@@ -1,8 +1,9 @@
+<p align="center">
+  <img src="https://files.catbox.moe/3mq01m.gif" />
+</p>
 
 
 
-
-![watever go my](https://github.com/user-attachments/assets/3b6e52ba-6520-45f6-9164-c7a75bbbe8a1)
 
 
 
