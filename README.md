@@ -1,7 +1,4 @@
-<p align="center">
-  <img src="https://files.catbox.moe/4vzu6j.gif" />
-</p>
-
+<p align="center"> awesome momemnts like and follwo 👅👅
 
 
 
@@ -14,3 +11,5 @@ i cant believe this
 </p>
 
 
+![image0 (4)](https://github.com/user-attachments/assets/c560b8c9-b572-409d-895b-fdd1fb0e2ce4)
+WHY IS
