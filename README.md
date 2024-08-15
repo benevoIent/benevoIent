@@ -1,15 +1,24 @@
-<p align="center"> awesome momemnts like and follwo 👅👅
+<p align="center">
+<img src="https://files.catbox.moe/ok2475.png" />
+</p
+
+<p align="center">
+<img src="https://files.catbox.moe/ntyjzb.png" />
+</p
 
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31omci325tgw2oph5qwegb5rhyna&cover_image=true&theme=novatorem&show_offline=false&background_color=e5effc&interchange=false&bar_color=bda2c5&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
+<p align="center">
+<img src="https://files.catbox.moe/eorluk.png" />
+</p
 
-![image_2024-08-04_194556223 (3)](https://github.com/user-attachments/assets/8d95539f-c721-4526-ac80-db3386d15440)
-i cant believe this
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31omci325tgw2oph5qwegb5rhyna&cover_image=true&theme=novatorem&show_offline=false&background_color=e5effc&interchange=false&bar_color=bda2c5&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-<p align="right">
-  <img src="https://files.catbox.moe/8ltw87.png" />
-</p>
+<p align="center">
+<img src="https://files.catbox.moe/5uh9br.png" />
+</p
 
-
-![image0 (4)](https://github.com/user-attachments/assets/c560b8c9-b572-409d-895b-fdd1fb0e2ce4)
-WHY IS
+<p align="center">
+<img src="https://files.catbox.moe/1hl7kp.png" />
+</p
