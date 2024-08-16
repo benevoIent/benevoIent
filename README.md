@@ -1,4 +1,4 @@
-<p align="center"> stop taking inspo of my skins its so obvious
+<p align="center"> stop taking inspo of my skins
 <p align="center">
 <img src="https://files.catbox.moe/ok2475.png" />
 </p
