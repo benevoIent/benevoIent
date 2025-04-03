@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://files.catbox.moe/cltipj.gif" />
+  <img src="https://files.catbox.moe/8r70ov.gif" />
 </p>
 <p align="center">
 I lub my bf
@@ -11,8 +11,5 @@ I lub my bf
 
 
 <p align="center">
-  <img src="https://files.catbox.moe/kf6epl.gif" />
-</p>
-<p align="center">
-I LOVE YOU FAT NUGGEETTTT Jejeje
+  <img src="https://files.catbox.moe/4qrmcg.gif" />
 </p>
